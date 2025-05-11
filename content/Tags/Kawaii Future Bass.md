@@ -1,0 +1,1 @@
+Vertente do [[Future Bass]] com estética sonora com sons agradáveis, fofos e com inspiração na cultura japonesa.

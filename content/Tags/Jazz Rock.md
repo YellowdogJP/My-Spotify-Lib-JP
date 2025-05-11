@@ -1,0 +1,1 @@
+Vertente formada da fusão entre Jazz e [[Rock]]
