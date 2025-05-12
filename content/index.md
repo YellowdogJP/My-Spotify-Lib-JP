@@ -1,0 +1,1 @@
+Página criada para gerenciar e compartilhar minhas músicas curtidas. As músicas são separadas por gêneros e emoções/sensações que sinto ouvindo elas
