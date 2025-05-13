@@ -3,4 +3,4 @@
 Tags: [[Êxtase]], [[Apreciação]], [[Paz]]
 
 Link:
-https://open.spotify.com/intl-pt/track/6f49kbOuQSOsStBpyGvQfA?si=065d648107884cca
+https://open.spotify.com/intl-pt/track/6f49kbOuQSOsStBpyGvQfA?si=065d648107884ccaz

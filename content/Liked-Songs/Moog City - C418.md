@@ -2,7 +2,7 @@
 
 
 
-Tags:[[Êxtase]], [[Relaxante]], [[Calmo]], [[Electronic]], [[Apreciação]], [[Minecraft]]
+Tags:[[Êxtase]], [[Relaxante]], [[Calmo]], [[Electronic]], [[Apreciação]], [[Minecraft]], [[Atmospheric]]
 
 Link:
 https://open.spotify.com/intl-pt/track/4Ar3oSp4bAw5gz22F70GM7?si=9c6315c4e5a64ded
