@@ -4,3 +4,4 @@ Tags: [[Apreciação]], [[Êxtase]], [[Paz]], [[Rock]], [[Gospel]]
 
 Link:
 https://open.spotify.com/intl-pt/track/5T1dlrMymVxAdS7wHSCJNE?si=6fb411fc69ce4971
+https://youtu.be/N527znXwMBU?si=j5cTydpNqsmFnWhK

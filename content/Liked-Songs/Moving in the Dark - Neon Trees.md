@@ -4,3 +4,4 @@ Tags:[[Êxtase]], [[Apreciação]], [[Animado]], [[Indie Rock]], [[Motivado]]
 
 Link:
 https://open.spotify.com/intl-pt/track/41aZ4UnmiyfQhPGtlWBah6?si=e1e06cca170b47b6
+https://youtu.be/6Altt5JFNxM?si=Kl0yr1x7JWkzIEfa

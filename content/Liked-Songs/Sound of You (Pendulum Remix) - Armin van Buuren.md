@@ -1,0 +1,8 @@
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/4J4KcVmHSypHymgMpAP9cn?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+<iframe width="100%" height="360" src="https://www.youtube.com/embed/UkALtin4Lf4" title="Pendulum &amp; Armin van Buuren &amp; Rob Swire - Sound of You (Official Lyric Video)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="100%" height="152" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/2064506328&color=%23382c04&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 12px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/pendulum" title="pendulum" target="_blank" style="color: #cccccc; text-decoration: none;">pendulum</a> · <a href="https://soundcloud.com/pendulum/sound-of-you" title="Sound of You" target="_blank" style="color: #cccccc; text-decoration: none;">Sound of You</a></div>
+
+Tags:[[Dubstep]], [[Drum and Bass]], [[Pendulum]], [[Electronic Rock]]
+
+Link:
+https://open.spotify.com/intl-pt/track/4J4KcVmHSypHymgMpAP9cn?si=d3a050422128415e

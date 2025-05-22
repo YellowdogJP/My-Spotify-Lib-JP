@@ -4,3 +4,4 @@ Tags:[[Êxtase]], [[Rock]],
 
 Link:
 https://open.spotify.com/intl-pt/track/2X28xPiVe5ffUuRISeDdty?si=0db9c2ed33c9496f
+https://youtu.be/U_1ogvMYcwA

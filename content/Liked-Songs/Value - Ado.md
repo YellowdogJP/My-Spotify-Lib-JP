@@ -4,3 +4,4 @@ Tags: [[Rock]], [[Amor]], [[J-Pop]], [[Feliz]], [[Apreciação]]
 
 Link:
 https://open.spotify.com/intl-pt/track/6BEnpVB7g2j8mzWs3MC2kh?si=11d9aba45aec49f0
+https://youtu.be/5iAQF_q6FSk

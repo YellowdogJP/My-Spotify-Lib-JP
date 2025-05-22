@@ -4,3 +4,4 @@ Tags: [[Dançante]], [[Apreciação]]
 
 Link:
 https://open.spotify.com/intl-pt/track/5lGimjX5CT7gL0kwB1AqQF?si=a27cced6244840e6
+https://youtu.be/Eria0XngKPQ

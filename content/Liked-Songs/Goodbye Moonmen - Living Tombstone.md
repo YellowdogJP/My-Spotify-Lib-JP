@@ -4,3 +4,4 @@ Tags: [[Apreciação]], [[Êxtase]], [[Calmo]]
 
 Link:
 https://open.spotify.com/intl-pt/track/35pLBOcuFKn6SfMZA3YVJN?si=28bafca6c64c4fc3
+https://youtu.be/vdEWZq-m27M

@@ -4,3 +4,4 @@ Tags: [[Rock]], [[Gospel]], [[Paz]], [[Feliz]]
 
 Link:
 https://open.spotify.com/intl-pt/track/5X6CG11j4zAdnjUiiJR3jw?si=63589310134f4c35
+https://youtu.be/4URSZDWZ7wI

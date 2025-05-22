@@ -4,3 +4,4 @@ Tags:[[Amor]], [[Apreciação]]
 
 Link:
 https://open.spotify.com/intl-pt/track/3SAga35lAPYdjj3qyfEsCF?si=28150025f27b49be
+https://youtu.be/vZi8ET9k11g?si=gYa9la_-ysvik8_f

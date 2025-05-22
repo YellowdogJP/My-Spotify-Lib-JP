@@ -4,3 +4,4 @@ Tags: [[Êxtase]], [[Rock]], [[Apreciação]]
 
 Link:
 https://open.spotify.com/intl-pt/track/3Zwu2K0Qa5sT6teCCHPShP?si=7fd0d910461a4a09
+https://youtu.be/j7aQDJLjiD4

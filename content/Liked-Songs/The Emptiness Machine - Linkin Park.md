@@ -4,3 +4,4 @@ Tags: [[Metal]], [[Êxtase]], [[Rock]], [[Alternative Metal]]
 
 Link:
 https://open.spotify.com/intl-pt/track/2PnlsTsOTLE5jnBnNe2K0A?si=b8ba24ecd86e4ec0
+https://youtu.be/SRXH9AbT280

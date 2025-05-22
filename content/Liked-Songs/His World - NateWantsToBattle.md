@@ -4,3 +4,4 @@ Tags: [[Sonic]]
 
 Link:
 https://open.spotify.com/intl-pt/track/0jGXplKOtDZFRyLQksJ0UK?si=19b9c307c8ab43ff
+https://youtu.be/CXRuZp_0cXo

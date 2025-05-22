@@ -3,4 +3,5 @@
 Tags: [[Instrumental]], [[Êxtase]], [[Apreciação]], [[Future Bass]]
 
 Link:
-https://open.spotify.com/intl-pt/track/40m1HapzMQ4mNSgm3aGPtd?si=e60e6a259db54830
+https://open.spotify.com/intl-pt/track/40m1HapzMQ4mNSgm3aGPtd?si=1d14d084d2ff4afc
+https://youtu.be/4M-Cm8OXqVA?si=ojA61J2cWZ8eq6Jw

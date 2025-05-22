@@ -1,0 +1,8 @@
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/6fDZ3OsYgyC4rg2CQ8KbFc?utm_source=generator" width="100%" height="152" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+<iframe width="100%" height="360" src="https://www.youtube.com/embed/99ggaaUJh30" title="Starjunk 95 - Kawaii Till I Die" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="100%" height="152" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/1146129748&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 12px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/starjunk95" title="Starjunk 95 スタージャンク95" target="_blank" style="color: #cccccc; text-decoration: none;">Starjunk 95 スタージャンク95</a> · <a href="https://soundcloud.com/starjunk95/starjunk-95-kawaii-till-i-die" title="Starjunk 95 - Kawaii Till I Die" target="_blank" style="color: #cccccc; text-decoration: none;">Starjunk 95 - Kawaii Till I Die</a></div>
+
+Tags: [[Future Funk]], [[City Pop]], [[Apreciação]]
+
+Link:
+https://open.spotify.com/intl-pt/track/6fDZ3OsYgyC4rg2CQ8KbFc?si=72d13443ff874cee

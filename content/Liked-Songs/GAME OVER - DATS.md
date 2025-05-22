@@ -4,3 +4,4 @@ Tags: [[Rhythm and Blues]], [[Apreciação]]
 
 Link:
 https://open.spotify.com/intl-pt/track/7EHrkgu52oe58ytneVPNVI?si=0a18a08332d4482d
+https://youtu.be/g5FnbXkgs7E

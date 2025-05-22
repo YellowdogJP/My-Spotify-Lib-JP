@@ -4,3 +4,4 @@ Tags:[[Êxtase]], [[Rock]], [[Calmo]]
 
 Links:
 https://open.spotify.com/intl-pt/track/3n2YaCic0C3gjCgkTkwfOz?si=fe12121732fc472e
+https://youtu.be/FYEADME-S9k

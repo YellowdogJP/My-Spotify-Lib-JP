@@ -8,7 +8,7 @@ import * as Plugin from "./quartz/plugins"
  */
 const config: QuartzConfig = {
   configuration: {
-    pageTitle: "Spotify-Lib",
+    pageTitle: "Music-Lib-JP",
     pageTitleSuffix: "",
     enableSPA: true,
     enablePopovers: true,
